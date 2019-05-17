@@ -2,7 +2,6 @@
 ---
 layout: post
 title: Lakora-ketchup
-tags:
 ---
 
 The Lakora Ketchup is something the Twin Flames indulge on from time to time.
