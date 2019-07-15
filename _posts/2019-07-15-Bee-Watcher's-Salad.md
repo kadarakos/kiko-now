@@ -3,20 +3,22 @@ layout: post
 title: Bee Watcher's Salad
 ---
 
-Eating this dish from a bowl, while watching the ever busy
+Watching the ever busy
 bee workers buzzing around in your garden makes for a divine Saturday afternoon.
-To make this wonderful meal for your twin-flame, you must prepare four simple 
-components and then ensemble them together.
+I had a wonderful time enjoying this salad with my twin flame, 
+observing the tiny creatures exectuting their protocol.
+First you will prepare four simple components and then ensemble them together.
 
 # Ingredients
 
-- Quinoa
+- Pearl Cous
 - Spinach
 - Mushroom
 - Thyme
 - Lemon 
 - Tomatoe
 - Balsamic vinegar
+- Sesame oil
 - Sugar, salt, pepper
 - Tofu
 - Soy sauce
@@ -36,4 +38,15 @@ super tomatoes.
 
 ## 3. Tofu
 
-asd
+Arguably even less challenging than the Lively shroomies: sear the tofu hard on olive oil, add soy sauce,
+sesame oil and a bit of lemon. Donezo!
+
+## 4. Pearl Couscous
+
+Cook the pearl couscous until it has a consistency that you feel like consuming.
+
+## 5. Ensemble
+
+Drum roll, ... , aaaand we are at the final stage already. Place a half moon shape from the pearl couscous on the plate.
+Fill the half moon up with super tomatoes and tofu. Place the lively shroomies on the couscous and tuck some raw spinach 
+here and there between the side of the bowl and other ingredients. Enjoy!
