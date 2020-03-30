@@ -42,7 +42,7 @@ tasty.
 
 ### The Finale
 
-Peel the Squash and cut it into beautiful slivers or glowing 
+Peel the Squash and cut it into beautiful nuggets of glowing 
 orange goodness. Place it on your nicest plate along with the
 bread. My twin flame is a purist and enjoys the it with the
 crunchy bread, but I like to add hummus into the mix.
