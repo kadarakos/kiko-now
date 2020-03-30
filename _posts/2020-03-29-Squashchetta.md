@@ -3,10 +3,10 @@ layout: post
 title: Squashchetta
 ---
 
-During the COVID-19 outbreak trying to maintain the
-lack of your chiseled body with home workouts
-you start to wonder: what is left in this world 
-to enjoy? The answer is obviously: Butternut Squash.
+As an effort to maintain the
+lack of their chiseled bodies with home workouts
+the Twin Flames wondered: what is left to enjoy in this 
+COVID-19 ridden world? The answer is obviously: Butternut Squash.
 (I also just wanted to eat something vegan that doesn't
 make me fart very bad.)
 
