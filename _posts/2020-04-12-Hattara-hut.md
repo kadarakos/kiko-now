@@ -3,7 +3,10 @@ layout: post
 title: Hattara Hut
 ---
 
-intro
+Such a humble, but colorful experience this dish is.
+Makes for a comforting dinner with just the right
+level of stimulation for a satisfyingly uneventful
+evening.
 
 Ingredients
 -------------
