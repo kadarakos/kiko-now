@@ -9,4 +9,4 @@ permalink: /about/
 
 > Isn't it strange that it feels more natural to imagine a
 > world without a beginning and an end, yet the the 
-> notion of *infinity* feels sO out of reach?
+> notion of *infinity* feels so out of reach?
