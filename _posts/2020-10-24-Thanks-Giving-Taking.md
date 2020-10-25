@@ -3,13 +3,13 @@ layout: post
 title: Thanks Giving Taking
 ---
 
-Thanks giving is beautiful Canadian traidition that Lakora appreciates, but does not
+Thanks giving is a beautiful Canadian traidition that Lakora appreciates, but does not
 fully understand. Hope you'll enjoy our culinary expression of benevolent confusion.
 
 Ingredients
 ---------------
 
-- Mini Aubergine
+- Mini Aubergines
 - Halloumi
 - Greek yoghurt
 - Tasty Jam
@@ -49,7 +49,7 @@ Open up your favs berry jam.
 
 ## The Reveal
 
-By now you must be wondering how to compose these tasty phrases into a harmonious haiku of flavour. 
+By now you must be wondering how to compose these tasty phrases into a harmonious haiku. 
 First of all put the mushrooms on the bruschetta. Place the yoghurt and jam on the table as dipping sauces.
 We recommend dipping to halloumi 80% of the times into the jam and 20% into yoghourt. The aurbegine only goes
 well with the yoghurt. That's it. Mushrooms on toast with jammy halloumi and yoghourty aurbegine. Its nice.
