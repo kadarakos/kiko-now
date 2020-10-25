@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aubergine Pâté Extraordinaire
+title: Thanks Giving Taking
 ---
 
 Thanks giving is beautiful Canadian traidition that Lakora appreciates, but does not
