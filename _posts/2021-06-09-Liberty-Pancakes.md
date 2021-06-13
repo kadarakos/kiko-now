@@ -33,7 +33,7 @@ Egg salad
 ------------
 
 Gently boil eggs until they are not quite hard, still runny a bit in the middle -- like yellow jellow. 
-Mix the eggs in a bowl with Mayo, Mustard, Horse Radish and pepper. 
+Mix the eggs in a bowl with Mayo, Mustard, Relish, Horse Radish and pepper. 
 
 
 Low place like home salad
